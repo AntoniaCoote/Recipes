@@ -2,4 +2,8 @@
 
 ## Ingredients
 
+- Avocados
+- Oil
+- Lemon
+
 ## Method
